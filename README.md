@@ -10,7 +10,7 @@
 <img src="doctorcookie.png" width="420px">
 
 <br>tuxedo/tesco⠀⸻⠀it he him⠀⠀⠀⠀18,⠀british,⠀system (^q^)
-<br>nines bsf irl trust trust⠀⠀[strw](https://ponyexp.straw.page)⠀⠀[gimmicks](https://thesatiristsluvsong.straw.page)⠀⠀[ata](https://ponyexpress.atabook.org/)
+<br>nines bsf irl trust trust⠀⠀[strw](https://lynchmob.straw.page)⠀⠀[gimmicks](https://thesatiristsluvsong.straw.page)⠀⠀[ata](https://ponyexpress.atabook.org/)
 
 <img src="nine1.png" width="450px">
 
