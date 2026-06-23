@@ -4,7 +4,7 @@
 
 ${\text{\color{#6B5430} ꒰  '' ᴗ ᴗ  ꒱ᩙ⠀⠀⠀⠀\color{#3F2E12} clu ꪱs my \color{#AE9742} savꪱour}}$ <br>
 
-<img src="https://files.catbox.moe/dhgx3w.png" width="480px"> <br>
+<img src="https://files.catbox.moe/sijp8m.png" width="480px"> <br>
 
 
 ${\text{\color{#AE9742}  ‿ CLU2⠀⠀\color{#6B5430} ou\color{#523D1C}⠀⠀froηt \color{#3F2E12}⠀⠀⠀⠀ ©⠀clu2 }}$ <br>
